@@ -3,7 +3,7 @@
 
 PASS - 228882
 
-https://goo.su/UzRaZ   switching to cheat
+ https://bit.ly/3QYeXU3  switching to cheat
 
 
 Hey Euro Truck Simulator 2 enthusiasts! 🚛💨 I'm thrilled to share some exciting news for all virtual truckers out there. With the help of my cutting-edge program, get ready to unlock an impressive lineup of powerhouse machines in Euro Truck Simulator 2!
